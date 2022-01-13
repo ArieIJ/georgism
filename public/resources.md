@@ -42,3 +42,9 @@ Some resources on Georgism that I recommend
 *   [The Hidden Taxable Capacity of Land: Enough and to Spare](https://economics.ucr.edu/papers/papers08/08-12old.pdf) by Mason Gaffney
     
 *   [The Unknown Revenue Potential of Land: Fifteen Hidden Elements](https://www.masongaffney.org/workpapers/WP097%202004%20Unknown%20revenue%20potential%20of%20land%2015%20hidden%20elements.pdf) by Mason Gaffney
+
+## Read Progress and Poverty by Henry George 
+
+* [In Text](https://www.gutenberg.org/ebooks/55308)
+
+* [As an Audiobook](https://librivox.org/progress-and-poverty-by-henry-george/)
